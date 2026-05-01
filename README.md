@@ -1,5 +1,5 @@
 ## Push your own limits of creativity
-Ira Books Publishing changes the experience of reading a book. Spiral binding for a 360-degree rotation. Lay flat, fold back, make notes, explore. Create a tablet-like experience. Enjoy Joycean language and Shakespearean language in quotation selections. Three books in the catalogue:
+Ira Books Publishing changes the experience of reading a book. Spiral binding for a 360-degree rotation. Lay flat, fold back, make notes, explore. Create a tablet-like experience. Joycean language and Shakespearean language in quotation selections. Three books in the catalogue:
 
 Book 1:
 <img src="https://github.com/user-attachments/assets/22d11c7e-c088-4e0d-97e2-a670bddbfd0f" width="220" height="290">

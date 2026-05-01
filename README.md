@@ -10,7 +10,7 @@ Quotation Selection in poetic form
 
 ISBN 978-619-93357-2-7\
 Retail price: EUR 18\
-Trade price: request wholesale pricing\
+Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 <br />
 
@@ -23,7 +23,7 @@ A Portrait of the Artist as a Young Man
 
 ISBN 978-619-93357-1-0\
 Retail price: EUR 18\
-Trade price: request wholesale pricing\
+Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 
 Book 3:
@@ -35,7 +35,7 @@ of a Shakespeare play
 
 ISBN 978-619-93357-0-3\
 Retail price: EUR 15\
-Trade price: request wholesale pricing\
+Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 <br />
 

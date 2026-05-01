@@ -15,7 +15,7 @@ Contact: inedyalkova152025@gmail.com
 <br />
 
 Book 2:
-<img src="https://github.com/user-attachments/assets/284efc92-326e-45db-8551-cccb61eacd9a" width="220" height="290">
+<img src="https://github.com/user-attachments/assets/ef046ddc-bbe4-49ac-a90a-e49fff4ab784" width="220" height="290">
 <br />
 Here comes the noble Dedalus!<br />
 A Sweet Quotation Selection from James Joyce's\
@@ -27,7 +27,7 @@ Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 
 Book 3:
-<img src="https://github.com/user-attachments/assets/2358a7c5-f14b-480a-b1cb-da38fa1bf6c0" width="220" height="290">
+<img src="https://github.com/user-attachments/assets/cb5d7df1-b979-4101-a559-71725f14f9f2" width="220" height="290">
 <br />
 A Midsummer Night's Dream<br />
 Delightful Quotation Selection\

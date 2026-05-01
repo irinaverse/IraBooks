@@ -2,7 +2,7 @@
 Ira Books Publishing changes the experience of reading a book. Spiral binding for a 360-degree rotation. Lay flat, fold back, make notes, explore. Create a tablet-like experience. Joycean language and Shakespearean language in quotation selections. Three books in the catalogue:
 
 Book 1:
-<img src="https://github.com/user-attachments/assets/364ce95f-4006-42c8-ae80-b5ca5cab8c0d" width="220" height="290">
+<img src="https://github.com/user-attachments/assets/b667fba6-cda5-4043-8c04-44f7d49a6111" width="220" height="290">
 <br />
 I tell you no story. Smile!<br />
 James Joyce's masterpiece Finnegans Wake<br />

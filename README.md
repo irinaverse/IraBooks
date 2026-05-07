@@ -9,7 +9,8 @@ James Joyce's masterpiece Finnegans Wake<br />
 Quotation Selection in poetic form
 
 ISBN 978-619-93357-2-7\
-Retail price: EUR 18 (free delivery)\
+Retail price: EUR 18\
+(enjoy free delivery)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 <br />
@@ -22,7 +23,8 @@ A Sweet Quotation Selection from James Joyce's\
 A Portrait of the Artist as a Young Man
 
 ISBN 978-619-93357-1-0\
-Retail price: EUR 18 (free delivery)\
+Retail price: EUR 18\
+(enjoy free delivery)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 
@@ -34,7 +36,8 @@ Delightful Quotation Selection\
 of a Shakespeare play
 
 ISBN 978-619-93357-0-3\
-Retail price: EUR 15 (free delivery)\
+Retail price: EUR 15\
+(enjoy free delivery)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 <br />

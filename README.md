@@ -29,7 +29,7 @@ Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact: inedyalkova152025@gmail.com
 
 Book 3:
-<img src="https://github.com/user-attachments/assets/cb5d7df1-b979-4101-a559-71725f14f9f2" width="220" height="290">
+<img src="https://github.com/user-attachments/assets/6a3a5d06-f8fd-42b8-ad6f-563a942164d0" width="220" height="290">
 <br />
 A Midsummer Night's Dream<br />
 Delightful Quotation Selection\

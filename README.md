@@ -1,7 +1,8 @@
 ## Push your own limits of creativity
 Ira Books Publishing changes the experience of reading a book. Spiral binding for a 360-degree rotation. Lay flat, fold back, make notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
+<br />
 
-
+<br />
 Book 1:
 <img src="https://github.com/user-attachments/assets/7658af2a-ddb9-4266-b202-4baf8ebbfdd7" width="220" height="290">
 <br />
@@ -18,7 +19,7 @@ Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact Irina: inedyalkova152025@gmail.com
 <br />
 
-
+<br />
 Book 2:
 <img src="https://github.com/user-attachments/assets/ef046ddc-bbe4-49ac-a90a-e49fff4ab784" width="220" height="290">
 <br />
@@ -35,7 +36,7 @@ Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
 Contact Irina: inedyalkova152025@gmail.com
 <br />
 
-
+<br />
 Book 3:
 <img src="https://github.com/user-attachments/assets/6a3a5d06-f8fd-42b8-ad6f-563a942164d0" width="220" height="290">
 <br />

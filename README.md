@@ -9,6 +9,7 @@ Book 1:
 I tell you no story. Smile!<br />
 James Joyce's masterpiece Finnegans Wake<br />
 Quotation Selection in poetic form
+<br />
 
 ISBN 978-619-93357-2-7\
 High-gloss cover and crisp white pages designed to maximize readability.\
@@ -26,6 +27,7 @@ Book 2:
 Here comes the noble Dedalus!<br />
 A Sweet Quotation Selection from James Joyce's\
 A Portrait of the Artist as a Young Man
+<br />
 
 ISBN 978-619-93357-1-0\
 High-gloss cover and crisp white pages designed to maximize readability.\
@@ -43,6 +45,7 @@ Book 3:
 A Midsummer Night's Dream<br />
 Delightful Quotation Selection\
 of a Shakespeare play
+<br />
 
 ISBN 978-619-93357-0-3\
 High-gloss cover and crisp white pages designed to maximize readability.\

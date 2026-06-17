@@ -1,5 +1,5 @@
-## Push your own limits of creativity
-Ira Books Publishing changes the experience of reading a book. Spiral binding for a 360-degree rotation. Lay flat, fold back, make notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
+## Open up your future
+Bulgarian Ira Books Publishing changes the experience of reading a book. Spiral binding for 360-degree rotation. Lay flat, fold back, make notes, explore. Joycean language and Shakespearean language in quotation selections. Three titles currently available:
 <br />
 
 <br />

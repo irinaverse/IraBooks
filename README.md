@@ -12,13 +12,13 @@ Quotation Selection in poetic form<br />
 <br />
 
 ISBN 978-619-93357-2-7\
-Glossy cover for vibrant colors and a long-lasting appearance.\
+Gloss-laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Printed in Bulgaria by Ira Books Publishing.\
 Retail price: EUR 18\
-(enjoy free delivery)\
+(enjoy complimentary shipping)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
-Contact Irina: inedyalkova152025@gmail.com
+Place an order via Irina's email: inedyalkova152025@gmail.com
 <br />
 
 <br />
@@ -31,13 +31,13 @@ A Portrait of the Artist as a Young Man<br />
 <br />
 
 ISBN 978-619-93357-1-0\
-Glossy cover for vibrant colors and a long-lasting appearance.\
+Gloss-laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Printed in Bulgaria by Ira Books Publishing.\
 Retail price: EUR 18\
-(enjoy free delivery)\
+(enjoy complimentary shipping)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
-Contact Irina: inedyalkova152025@gmail.com
+Place an order via Irina's email: inedyalkova152025@gmail.com
 <br />
 
 <br />
@@ -50,13 +50,13 @@ of a Shakespeare play<br />
 <br />
 
 ISBN 978-619-93357-0-3\
-Glossy cover for vibrant colors and a long-lasting appearance.\
+Gloss-laminate covers for vibrant colors and durability.\
 Quotes on white pages for maximum readability and creative freedom.\
 Printed in Bulgaria by Ira Books Publishing.\
 Retail price: EUR 15\
-(enjoy free delivery)\
+(enjoy complimentary shipping)\
 Trade price: Request wholesale pricing for groups, students, coffeehouses etc.\
-Contact Irina: inedyalkova152025@gmail.com
+Place an order via Irina's email: inedyalkova152025@gmail.com
 <br />
 
 
